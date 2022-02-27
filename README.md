@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SebPlayzz
+- 🌱 I’m currently learning mostly Lua and a bit of JS.(maybe python??)
+- 👀 I’m interested in Roblox Exploiting :p
+- 📫 How to reach me: imadefective@gmail.com
+- Looking to collab of a roblox game? Well HAHA im the guy-
